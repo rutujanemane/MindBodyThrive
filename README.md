@@ -1,1 +1,1 @@
-# MindBodyThrive
+# MindBodyConnect
